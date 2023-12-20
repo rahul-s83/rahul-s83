@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rahul-s83
-- 👀 I’m interested in learning on technology and connecting with developers for recruitment
+- 👀 I’m interested in learning about technology and connecting with developers for recruitment
 - 🌱 I’m currently learning SAS
 - 💞️ I’m looking to collaborate on recruitment and network building with talented developers
 - 📫 How to reach me: rahul.shinde@experis.com
