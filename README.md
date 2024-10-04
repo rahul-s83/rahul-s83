@@ -1,4 +1,6 @@
-👋 Hey there! I'm Rahul Shinde, a tech enthusiast on a mission to help developers land awesome jobs while learning from their passions. You can connect with me on LinkedIn here and shoot me an email at rahul.shinde@experis.com for any queries or opportunities!
+![linkedin profile time line](https://github.com/user-attachments/assets/010db518-e169-4d24-8eee-de2fcebde313)
+
+👋 Hey there! I'm Rahul Shinde, a tech enthusiast on a mission to help developers land awesome jobs while learning from their passions. You can connect with me on LinkedIn here and shoot me an email at rahul_connect@yahoo.com for any queries or opportunities!
 
 🐦 Let's tweet! Find me on Twitter as @RahulSh60483616 🐤
 
